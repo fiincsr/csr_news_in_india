@@ -1,5 +1,7 @@
-Fiinovation CSR News : India Records ₹40,794 Crore in CSR Expenditure in FY25 Amid Uneven Fund Distribution
+Fiinovation CSR News : India’s CSR Growth to $75 Billion
 
-<img width="1264" height="843" alt="Gemini_Generated_Image_tmkagotmkagotmka" src="https://github.com/user-attachments/assets/81ffe8ed-a4b7-4e58-83ac-d430e3e20739" />
+<img width="1536" height="1024" alt="India’s CSR Growth to $75 Billion" src="https://github.com/user-attachments/assets/809f9045-3619-489d-ba08-d819b83ea4ef" />
+
+
 
 More Visit : https://fiinovation.co.in/
